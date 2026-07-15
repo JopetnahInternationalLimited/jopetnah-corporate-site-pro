@@ -250,7 +250,211 @@ We are committed to building lasting relationships founded on trust, professiona
 Every project we undertake is guided by our commitment to delivering measurable results while contributing to stronger businesses, resilient communities, and sustainable economic development.
 
 At Jopetnah International Limited, we do not simply deliver services—we build partnerships, create opportunities, and empower progress.
+---
 
+# Global Presence
+
+Jopetnah International Limited combines deep local expertise with an expanding international outlook, enabling us to deliver integrated solutions across multiple markets and industries.
+
+Headquartered in Kampala, Uganda, we continue to strengthen our presence through regional offices, international business networks, and strategic partnerships that connect Africa with global opportunities.
+
+Our commitment to quality, innovation, and collaboration enables us to support governments, corporations, development partners, SMEs, academic institutions, and communities across diverse economic sectors.
+
+---
+
+# Uganda Branch Network
+
+Our domestic operations provide nationwide coverage through strategically located offices that strengthen service delivery, client engagement, and project implementation.
+
+### Current Branch Offices
+
+- Kampala (Head Office)
+- Jinja
+- Mbarara
+- Gulu
+- Mbale
+- Arua
+- Fort Portal
+- Hoima
+- Adjumani
+
+These offices enable us to respond effectively to regional opportunities while maintaining consistent corporate standards across Uganda.
+
+---
+
+# International Business Network
+
+Through international partnerships, supplier relationships, client engagements, and collaborative initiatives, Jopetnah International Limited continues to expand its global reach.
+
+### Africa
+
+- Uganda
+- Kenya
+- Tanzania
+- Rwanda
+- South Sudan
+- Democratic Republic of Congo
+- Ethiopia
+- Somalia
+- Nigeria
+- South Africa
+- Egypt
+
+### Middle East
+
+- United Arab Emirates
+- Saudi Arabia
+- Israel
+
+### Asia-Pacific
+
+- China
+- India
+- Japan
+- Singapore
+- Hong Kong
+- Vietnam
+- South Korea
+- Australia
+
+### Europe
+
+- United Kingdom
+- Netherlands
+- Germany
+- Italy
+- Croatia
+- Greece
+- Hungary
+- Türkiye
+- Russia
+
+### Americas
+
+- United States
+- Canada
+- Brazil
+
+As our organization grows, we continue to cultivate new strategic relationships that expand opportunities for investment, trade, innovation, and sustainable development.
+
+---
+
+# Strategic Partnerships
+
+Our success is strengthened through collaboration.
+
+We actively pursue mutually beneficial partnerships with organizations that share our commitment to innovation, sustainability, operational excellence, and responsible business practices.
+
+Our partnership ecosystem includes:
+
+- Government institutions
+- Development partners
+- International NGOs
+- Multilateral organizations
+- Universities and research institutions
+- Technology companies
+- Engineering firms
+- Healthcare providers
+- Logistics partners
+- Manufacturers
+- Financial institutions
+- Investors
+- Professional associations
+- Private sector enterprises
+
+Together, we develop integrated solutions that create long-term value for businesses, institutions, and communities.
+
+---
+
+# Corporate Statistics
+
+| Metric | Value |
+|---------|------:|
+| **Established** | 2016 |
+| **Headquarters** | Kampala, Uganda |
+| **Strategic Sectors** | 16 |
+| **Uganda Branch Offices** | 9 |
+| **International Business Network** | 20+ Countries |
+| **Core Business Model** | Diversified International Conglomerate & Social Enterprise |
+| **Clients Served** | Governments, NGOs, Universities, Corporations, SMEs & Individuals |
+| **Primary Delivery Model** | Integrated Multi-Sector Solutions |
+
+---
+
+# Who We Serve
+
+Our multidisciplinary expertise enables us to support organizations of every size and sector.
+
+We proudly serve:
+
+- National Governments
+- Local Governments
+- International Organizations
+- Development Partners
+- NGOs & Civil Society Organizations
+- Universities & Educational Institutions
+- Healthcare Institutions
+- Financial Institutions
+- Manufacturing Companies
+- Infrastructure Developers
+- Hospitality Businesses
+- Agricultural Enterprises
+- SMEs
+- Startups
+- Corporate Organizations
+- Investors
+- Individual Clients
+
+Every engagement is built on trust, professionalism, innovation, and measurable results.
+
+---
+
+# Leadership & Governance
+
+Jopetnah International Limited operates under a governance structure designed to promote accountability, transparency, strategic leadership, and operational excellence.
+
+Our leadership framework comprises:
+
+- Board of Directors
+- Managing Director
+- Director of Human Resources & Public Relations
+- Company Secretary
+- Departmental Heads
+- Technical Specialists
+- Project Teams
+
+This governance model ensures effective decision-making, strong corporate oversight, sound financial management, and responsible stakeholder engagement.
+
+---
+
+# Our Leadership Philosophy
+
+We believe that sustainable organizations are built through visionary leadership, disciplined execution, ethical governance, and continuous innovation.
+
+Our leadership philosophy emphasizes:
+
+- Strategic thinking
+- Accountability
+- Financial discipline
+- Innovation
+- Collaboration
+- Customer focus
+- Talent development
+- Sustainable growth
+
+By empowering our people and fostering a culture of continuous improvement, we create lasting value for our clients, partners, shareholders, and communities.
+
+---
+
+# Looking Ahead
+
+As we continue expanding our international footprint, Jopetnah International Limited remains committed to becoming one of Africa's most respected integrated solutions providers.
+
+We are investing in strategic partnerships, digital transformation, research and development, and human capital to position our organization for long-term, sustainable growth.
+
+Our ambition is not only to grow our business but also to contribute meaningfully to economic development, innovation, and social progress wherever we operate.
+
+> **Local Expertise. Global Perspective. Sustainable Impact.**
 > **Empowering Businesses Worldwide through Integrity, Innovation, Excellence, and Sustainable Partnerships.**
 ---
 
