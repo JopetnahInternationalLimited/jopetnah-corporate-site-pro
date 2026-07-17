@@ -1,4 +1,4 @@
-# Jopetnah International Limited
+# Jopetnah International Limited - Corporate Website
 Official corporate website for Jopetnah International Limited — Empowering Businesses Worldwide through integrated solutions across 16+ strategic industries.
 <p align="center">
 
