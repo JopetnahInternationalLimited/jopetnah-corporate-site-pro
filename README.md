@@ -3,7 +3,7 @@ Official corporate website for Jopetnah International Limited — Empowering Bus
 <p align="center">
 
 <!-- [![Jopetnah International Limited Logo](assets/icon.png)](assets/icon.png) -->
-<img src="assets/images/logo.png" alt="Jopetnah International Limited Logo" width="180">
+<img src="assets/icon.png" alt="Jopetnah International Limited Logo" width="180">
 
 </p>
 
