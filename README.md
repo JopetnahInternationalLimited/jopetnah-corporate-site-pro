@@ -1481,7 +1481,7 @@ Together, we can create innovative solutions that generate lasting value.
 
 ## Headquarters
 
-**Mutungo–Luzira**
+**Bulindo–Estates**
 
 P.O. Box 124614
 
@@ -1493,7 +1493,7 @@ Kampala GPO, Uganda
 
 UN Rise Road
 
-8th Street
+8th Street, Industrial Area
 
 Kisugu
 
@@ -1523,6 +1523,7 @@ https://www.jopetnah.com
 
 # Follow Us
 
+- Facebook — Jopetnah International Limited
 - LinkedIn — Jopetnah International Limited
 - YouTube — JopetnahInternationalLimited
 - X (Twitter) — @Jopetnah_LTD
